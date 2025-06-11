@@ -1,0 +1,1 @@
+# ee316-lab-9-10-operating-characteristics-of-jfets-solved
